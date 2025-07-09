@@ -1,4 +1,4 @@
-# Last updated 9/7/25 21:55 MYT (D/M/Y)
+# Last updated 9/7/25 21:57 MYT (D/M/Y)
 ```
 [THIS PC > Sspecialthingss > Cardss > Introduction Template]
 Loading Pony-Town-Introduction.txt
@@ -12,7 +12,7 @@ Outputting Code...
 > ## NOTICE
 > -DO NOT EVER COPY MY SKINS.\
 > -DO NOT EVER REPOSTING MY SKINS ON WHATEVER WEBSITE I DON'T GIVE PERMISSIONS TO A _PATHETHIC THIEF_ LIKE YOU.\
-> -If you happen to see this repository, this is because I am AFK
+> -If you happen to see this repository, this is because I am AFK (Whisp are recommended!)
 >
 > ## Information
 > Cyndomie / Cyndy Mint\
