@@ -30,9 +30,11 @@ Outputting Code...
 >
 > ## DNI
 > Basic DNI\
+> Under 13
 > BTS Antis\
 > BTS Solos\
-> Whoever tf is kissing me for no reason; I am *very uncomfortable* with that
+> Whoever tf is kissing me for no reason; I am *very uncomfortable* with that\
+> Don't be TOO freaky with me, adults or teens, serious or joke, I am VERY VERY UNCOMFORTABLE.
 >
 > ## Notes
 > Nowadays I feel a bit ruder (though I have no intentions), don't mind me!\
