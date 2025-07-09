@@ -7,7 +7,8 @@ Outputting Code...
 > ## NOTICE
 > -DO NOT EVER COPY MY SKINS.\
 > -DO NOT EVER REPOSTING MY SKINS ON WHATEVER WEBSITE\
-> I DON'T GIVE PERMISSIONS TO A _PATHETHIC THIEF_ LIKE YOU.
+> I DON'T GIVE PERMISSIONS TO A _PATHETHIC THIEF_ LIKE YOU.\
+> -If you happen to see this repository, this is because I am AFK
 >
 > ## Information
 > Cyndomie / Cyndy Mint\
