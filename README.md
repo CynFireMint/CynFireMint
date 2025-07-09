@@ -39,4 +39,8 @@ Outputting Code...
 > Sometimes using tones such as '/j' or '/silly' can help me understand.\
 > Because I can be overly sensitive and easily overwhelmed!
 >
+> ## Links
+> [Twitter](https://x.com/namrizz__77)\
+> [Art౨ৎ](https://x.com/Cyn_FireMint)
+> 
 > ![](https://github.com/user-attachments/assets/1ce9eefb-0511-4631-9792-a8a3d444eb29)
