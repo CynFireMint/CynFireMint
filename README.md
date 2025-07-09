@@ -1,4 +1,4 @@
-# Last updated 9/7/25 21:51 MYT (D/M/Y)
+# Last updated 9/7/25 21:53 MYT (D/M/Y)
 ```
 [THIS PC > Sspecialthingss > Cardss > Introduction Template]
 Loading Pony-Town-Introduction.txt
@@ -36,7 +36,7 @@ Outputting Code...
 >
 > ## DNI
 > Basic DNI\
-> Under 13
+> Under 13\
 > BTS Antis\
 > BTS Solos\
 > Whoever tf is kissing me for no reason; I am *very uncomfortable* with that\
