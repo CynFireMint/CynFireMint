@@ -1,4 +1,4 @@
-# Last updated 9/7/25 (D/M/Y)
+# Last updated 9/7/25 21:51 MYT (D/M/Y)
 ```
 [THIS PC > Sspecialthingss > Cardss > Introduction Template]
 Loading Pony-Town-Introduction.txt
