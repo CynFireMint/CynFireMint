@@ -3,7 +3,7 @@
 Outputting Code...
 
 > ![](https://github.com/user-attachments/assets/9c7fc285-5992-4625-8310-c1402d3b66ab)\
-> (This is not my art, but from an official game [FNAF: Into the Pits] sprites. I rendered the sprite in for my own personal use)
+> (This sprite doesn't belong to me, but from an official game [FNAF: Into the Pits]. I rendered the sprite and adding background for my own personal use)
 >
 > ## NOTICE
 > -DO NOT EVER COPY MY SKINS.\
