@@ -1,4 +1,4 @@
-# Last updated 9/7/25 21:57 MYT (D/M/Y)
+# Last updated 10/7/25 22:59 MYT (D/M/Y)
 ```
 [THIS PC > Sspecialthingss > Cardss > Introduction Template]
 Loading Pony-Town-Introduction.txt
@@ -44,7 +44,8 @@ Outputting Code...
 > ## Notes
 > Nowadays I feel a bit ruder (though I have no intentions), don't mind me!\
 > Sometimes using tones such as '/j' or '/silly' can help me understand.\
-> Because I can be overly sensitive and easily overwhelmed!
+> Because I can be overly sensitive and easily overwhelmed!\
+> And no, don't invite me to the party. I don't feel like doing it nowadays.
 >
 > ## Links
 > [Twitter](https://x.com/namrizz__77)\
