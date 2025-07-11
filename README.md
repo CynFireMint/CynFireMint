@@ -1,10 +1,11 @@
-# Last updated 10/7/25 22:59 MYT (D/M/Y)
+# Last updated 11/7/25 11:29 MYT (D/M/Y)
 ```
 [THIS PC > Sspecialthingss > Cardss > Introduction Template]
 Loading Pony-Town-Introduction.txt
 
 Outputting Code...
 ```
+![](https://komarev.com/ghpvc/?username=CynFireMint)
 ![](https://tenor.com/bnkFD.gif)
 > ![](https://github.com/user-attachments/assets/9c7fc285-5992-4625-8310-c1402d3b66ab)\
 > (This sprite doesn't belong to me, but from an official game [FNAF: Into the Pits]. I rendered the sprite and adding background for my own personal use)
