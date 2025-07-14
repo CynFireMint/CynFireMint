@@ -1,4 +1,3 @@
-# Last updated 14/7/25 12:07 MYT (D/M/Y)
 ![](https://komarev.com/ghpvc/?username=CynFireMint)
 
 <p align="center">────୨ৎ────</p>
