@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=CynFireMint)
 
-<p align="center">────୨ৎ────</p>
+<p align="center">────୨ৎ Hey Rudy!────</p>
 
 <p align="center"><img width="640" height="360" alt="Untitled11_20250714111756" src="https://github.com/user-attachments/assets/e0dd5c14-492e-43fc-92da-cdcd0f7d2ee2" /></p>
 
