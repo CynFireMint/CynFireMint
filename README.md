@@ -8,7 +8,7 @@
 
 **NOTICE**\
 -DO NOT EVER COPY MY SKINS.\
--DO NOT EVER REPOSTING MY SKINS ON WHATEVER WEBSITE I DON'T GIVE PERMISSIONS TO A _PATHETHIC THIEF_ LIKE YOU.\
+-Do not repost my skins on anywhere.\
 -If you happen to see this repository, this is because I am AFK (Whisp are recommended!)
 
 [Introduction.txt](https://github.com/CynFireMint/Introduction-Infro.git)
