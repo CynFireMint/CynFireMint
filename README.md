@@ -9,7 +9,7 @@
 **NOTICE**\
 -DO NOT EVER COPY MY SKINS.\
 -Do not repost my skins on anywhere.\
--Don't be disrespectful towards anyone, yours or my friends. I don't tolerate disrespectfulness.\
+-Don't be disrespectful towards anyone, any strangers, yours or my friends. I don't tolerate disrespectfulness. (Disrespectful is part of my DNI!)\
 -If you happen to see this repository, this is because I am AFK (Whisp are recommended!)
 
 [Introduction.txt](https://github.com/CynFireMint/Introduction-Infro.git)
