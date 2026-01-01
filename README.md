@@ -1,8 +1,9 @@
 ![](https://komarev.com/ghpvc/?username=CynFireMint)
 
-<p align="center">────୨ৎ Hey Rudy!────</p>
+<p align="center">────୨ৎ Hey Whimsical Gays!!────</p>
 
-<p align="center"><img width="640" height="360" alt="Untitled11_20250714111756" src="https://github.com/user-attachments/assets/e0dd5c14-492e-43fc-92da-cdcd0f7d2ee2" /></p>
+<p align=”center”><img width="1573" height="694" alt="IMG_7548" src="https://github.com/user-attachments/assets/7c3417e7-fd37-4036-bb4c-819d407c790d" /></p>
+
 
 <p align="center">ᯓ★ Sleeping Beauty ── .✦</p>
 
